@@ -8,5 +8,5 @@
 - люблю спорт, на любительском уровне занимаюсь триатлоном
 - прохожу обучение на платформе [Netology]: https://netology.ru по специальности инженер по тестированию ПО
 
-[хобби]https://1drv.ms/i/s!AqOLUGgZlrUsoxsXECdENcPQ7erY?e=xLrQRb
-[хобби]https://1drv.ms/i/s!AqOLUGgZlrUsox1m3G9qCatIAz6Y?e=Ht7OfX
+![IMG-621d3e7089d16c49e85e2c151f190176-V](https://user-images.githubusercontent.com/130070585/231536903-0c7f4d18-05b3-4f5a-b242-e9d55653d835.jpg)
+![IMG_2018](https://user-images.githubusercontent.com/130070585/231536947-9af0057c-cb0b-4206-8ae8-e97275a995d8.jpg)
